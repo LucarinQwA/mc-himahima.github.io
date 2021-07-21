@@ -1,1 +1,1 @@
-# mc-himahima.github.io
+# 暇な人の集まり
